@@ -79,7 +79,7 @@ Azure Fundamentals, Automation Anywhere
 
 ## 📫 Let's Connect!
 
-- 📧 Email: [mondalmanas07@gmail.com](mailto:mondalmanas07@gmail.com)  
+- 📧 Email: mondalmanas07@gmail.com
 - 🔗 LinkedIn: [linkedin.com/in/manas-mondal-766679198](https://www.linkedin.com/in/manas-mondal-766679198)  
 
 ---
